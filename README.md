@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Nguyễn Cao Tấn Thành
-- 👀 02/04/200*
-- 🌱 I’m Oreki
+- 👋 Hi, I’m Tan Thanh
+- 👀 02/04/2007 
+- 🌱my nickname Oreki
